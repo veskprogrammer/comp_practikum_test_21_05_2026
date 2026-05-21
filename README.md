@@ -1,0 +1,1 @@
+# comp_practikum_test_21_05_2026
